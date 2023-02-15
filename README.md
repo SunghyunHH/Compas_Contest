@@ -1,2 +1,2 @@
 # Compas_Contest
-<img width="150%" src="https://github.com/SunghyunHH/Compas_Contest/files/10742852/PPL_lastposter.pdf">
+<img width="100%" src="https://user-images.githubusercontent.com/94526604/219028363-90af2623-8728-48e2-824d-99c95646ddc7.jpg">
